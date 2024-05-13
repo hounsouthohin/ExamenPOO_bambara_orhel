@@ -1,1 +1,0 @@
-# ExamenPOO_bambara_orhel
